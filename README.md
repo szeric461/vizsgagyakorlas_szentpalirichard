@@ -1,0 +1,1 @@
+# vizsgagyakorlas_szentpalirichard
